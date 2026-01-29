@@ -1,4 +1,4 @@
-![](https://www.tumblr.com/appleluv3r7/804794622850252800/new-graphics-i-made-for-my-rentry?source=share)
+![](https://files.catbox.moe/gkkhvs.jpg)
 
 <!--
 **willthewiser/willthewiser** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
